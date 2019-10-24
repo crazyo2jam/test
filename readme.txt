@@ -10,7 +10,6 @@ qrqrqrrqrqrqrqrq
 qrqrqqr
 qrqrqrrqrqrqrqrq
 qrqrqqr
-qrqrqrrqrqr:wq
 qrqrqrrqrqrqrqrq
 qrqrqqr
 qrqrqrrqrqrqrqrq
